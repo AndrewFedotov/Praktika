@@ -1,3 +1,0 @@
-# Praktika
-website
-q
